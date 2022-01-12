@@ -8,13 +8,13 @@ Brandon J. Murrill, _Modes of Constitutional Interpretation_ (2018) (Canvas)
 ## Class 2 - January 24, 2022
 Judicial review and _Marbury v. Madison_ (CB 253-261)  
 Notes on _Marbury_ (CB 261-264)  
-Notes on the countermajoritarian difficulty (CB 264-277)
+Notes on the countermajoritarian difficulty (CB 264-277)  
 Interpretation outside the courts (CB 278-286)  
 
 # Separation of Powers
 
-## Class 3 - January 26, 2022
-Presidential Power - a Conceptual Framework (CB 695-723)
+## Class 3 - January 26,__ 2022
+Presidential Power - a Conceptual Framework (CB 695-723)  
 INS v. Chadha (CB 881-897)
 
 ## Class 4 - January 31, 2022
