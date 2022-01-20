@@ -1,7 +1,7 @@
-1 Cranch 137
-Supreme Court of the United States
-William Marbury v. James Madison, Secretary of State of the United States.
-Feb. 1803.
+1 Cranch 137  
+Supreme Court of the United States  
+William Marbury v. James Madison, Secretary of State of the United States.  
+Feb. 1803.  
 
 
 
@@ -21,9 +21,9 @@ His right originates in an act of congress passed in February 1801, concerning t
 
 After dividing the district into two counties, the 11th section of this law, enacts, “that there shall be appointed in and for each of the said counties, such number of discreet persons to be justices of the peace as the president of the United States shall, from time to time, think expedient, to continue in office for five years.
 
-*155 It appears, from the affidavits, that in compliance with this law, a commission for William Marbury as a justice of peace for the county of Washington, was signed by John Adams, then president of the United States; after which the seal of the United States was affixed to it; but the commission has never reached the person for whom it was made out.
+It appears, from the affidavits, that in compliance with this law, a commission for William Marbury as a justice of peace for the county of Washington, was signed by John Adams, then president of the United States; after which the seal of the United States was affixed to it; but the commission has never reached the person for whom it was made out.
 
-**12 In order to determine whether he is entitled to this commission, it becomes necessary to enquire whether he has been appointed to the office. For if he has been appointed, the law continues him in office for five years, and he is entitled to the possession of those evidences of office, which, being completed, became his property.
+12 In order to determine whether he is entitled to this commission, it becomes necessary to enquire whether he has been appointed to the office. For if he has been appointed, the law continues him in office for five years, and he is entitled to the possession of those evidences of office, which, being completed, became his property.
 
 The 2d section of the 2d article of the constitution, declares, that, “the president shall nominate, and, by and with the advice and consent of the senate, shall appoint ambassadors, other public ministers and consuls, and all other officers of the United States, whose appointments are not otherwise provided for.”
 
