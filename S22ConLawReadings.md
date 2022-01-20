@@ -6,7 +6,7 @@ District of Columbia v. Heller and notes (CB 230-250) (also on Canvas)
 Brandon J. Murrill, _Modes of Constitutional Interpretation_ (2018) (Canvas)
 
 ## Class 2 - January 24, 2022
-Judicial review and [_Marbury v. Madison_]([https://hbwhbwhbw.github.io/ConstitutionalLaw/Marbury) (CB 253-261 plus _Marbury_ opinion)  
+Judicial review and [_Marbury v. Madison_](https://hbwhbwhbw.github.io/ConstitutionalLaw/Marbury) (CB 253-261 plus [_Marbury_ opinion](https://hbwhbwhbw.github.io/ConstitutionalLaw/Marbury)  
 Notes on _Marbury_ (CB 261-264)  
 Notes on the countermajoritarian difficulty (CB 264-277)  
 Interpretation outside the courts (CB 278-286)  
