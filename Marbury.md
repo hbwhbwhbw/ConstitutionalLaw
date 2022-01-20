@@ -1,8 +1,6 @@
+# Marbury v. Madison (1803)
 1 Cranch 137  
 Supreme Court of the United States  
-William Marbury v. James Madison, Secretary of State of the United States.  
-Feb. 1803.  
-
 
 
 In the order in which the court has viewed this subject, the following questions have been considered and decided.
