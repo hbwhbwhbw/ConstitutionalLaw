@@ -21,7 +21,7 @@ After dividing the district into two counties, the 11th section of this law, ena
 
 It appears, from the affidavits, that in compliance with this law, a commission for William Marbury as a justice of peace for the county of Washington, was signed by John Adams, then president of the United States; after which the seal of the United States was affixed to it; but the commission has never reached the person for whom it was made out.
 
-12 In order to determine whether he is entitled to this commission, it becomes necessary to enquire whether he has been appointed to the office. For if he has been appointed, the law continues him in office for five years, and he is entitled to the possession of those evidences of office, which, being completed, became his property.
+In order to determine whether he is entitled to this commission, it becomes necessary to enquire whether he has been appointed to the office. For if he has been appointed, the law continues him in office for five years, and he is entitled to the possession of those evidences of office, which, being completed, became his property.
 
 The 2d section of the 2d article of the constitution, declares, that, “the president shall nominate, and, by and with the advice and consent of the senate, shall appoint ambassadors, other public ministers and consuls, and all other officers of the United States, whose appointments are not otherwise provided for.”
 
