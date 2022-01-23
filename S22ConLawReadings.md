@@ -13,7 +13,7 @@ Interpretation outside the courts (CB 278-286)
 
 # Separation of Powers
 
-## Class 3 - January 26,__ 2022
+## Class 3 - January 26, 2022
 Presidential Power - a Conceptual Framework (CB 695-723)  
 INS v. Chadha (CB 881-897)
 
