@@ -33,7 +33,7 @@ Interpreting the Constitution - When? (CB 286-333)
 The President as Personnel Manager (CB 753-812)
 
 ## Class 9 - February 16, 2022
-Suing the President (CB 898-935)
+Suing the President (CB 898-913)
 
 # Federalism
 
