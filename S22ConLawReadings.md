@@ -41,21 +41,24 @@ Suing the President (CB 898-913)
 Congressional Power (CB 349-375)
 McCulloch
 
-## Class 11 - February 23, 2022
+## Class 11 - February 28, 2022
 Commerce Clause: The Framework (CB 375-413)
 
-## Class 12 - February 28, 2022
+## Class 12 - March 2, 2022
 Commerce Clause: The New Deal Transformation (CB 413-433)
 
-## Class 13 - March 2, 2022
+## Class 13 - March 7, 2022
 Commerce Clause cont'd (CB 434-475)
-## Class 14 - March 7, 2022
+
+## Class 14 - March 9, 2022
 The Taxing Power and The Spending Power (CB 475-500)
-## Class 15 - March 9, 2022
+
+## Class 15 - Recorded Makeup Lecture
 Dormant Commerce Clause (CB 649-672)
 Tenth Amendment (CB 500-521)
 
 SPRING BREAK
+
 RIGHTS
 ## Class 16 - March 21, 2022
 Equal Protection Clause (CB 953-999)
@@ -63,7 +66,7 @@ Equal Protection Clause (CB 953-999)
 ## Class 17 - March 23, 2022
 Equal Protection Clause cont'd (CB 1177-1198, 1207-1237)
 
-## Class 18 - March 28, 2022
+## Class 18 - March 28, 2022 - Recorded Makeup Lecture
 Equal Protection Clause: Facially Neutral Laws (CB 1035-1086)
 
 ## Class 19 - March 30, 2022
