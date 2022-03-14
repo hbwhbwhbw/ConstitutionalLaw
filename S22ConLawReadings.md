@@ -60,7 +60,7 @@ Tenth Amendment (CB 500-521)
 SPRING BREAK
 
 ## Class 16 - March 21, 2022
-Bringing Things Together: NFIB v. Sebelius (CB 525-588)
+Bringing Things Together: NFIB v. Sebelius (CB 525-585)
 
 # Rights
 
