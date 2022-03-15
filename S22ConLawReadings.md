@@ -53,38 +53,38 @@ Commerce Clause cont'd (CB 434-475)
 ## Class 14 - March 9, 2022
 The Taxing Power and The Spending Power (CB 475-500)
 
-## Class 15 - Recorded Makeup Lecture
+SPRING BREAK
+
+## Class 15 - March 21, 2022
 Dormant Commerce Clause (CB 649-672)  
 Tenth Amendment (CB 500-521)
 
-SPRING BREAK
-
-## Class 16 - March 21, 2022
+## Class 16 - March 23, 2022
 Bringing Things Together: NFIB v. Sebelius (CB 525-585)
 
 # Rights
 
-## Class 17 - March 23, 2022
+## Class 17 - March 28, 2022 - Recorded Lecture
 Equal Protection Clause (CB 953-999)
 
-## Class 18 - March 28, 2022 - Recorded Makeup Lecture
+## Class 18 - March 30, 2022
 Equal Protection Clause cont'd (CB 1177-1198, 1207-1237)
 
-## Class 19 - March 30, 2022
+## Class 19 - April 4, 2022
 Equal Protection Clause: Facially Neutral Laws (CB 1035-1086)
 
-## Class 20 - April 4, 2022
+## Class 20 - April 6, 2022
 Reconstruction Amendments (CB 608-639)
 
-## Class 21 - April 6, 2022
+## Class 21 - April 11, 2022
 SDP: Incorporation (CB 1267-1268, 1310-1332)
 Economic Rights (CB 1332-1362)
 
-## Class 22 - April 11, 2022
+## Class 22 - April 13, 2022
 SDP: Family (CB 1365-1407)
 
-## Class 23 - April 13, 2022
+## Class 23 - April 18, 2022
 SDP: Abortion (CB 1427-1476)
 
-## Class 24 - April 18, 2022
+## Class 24 - Recorded Makeup Lecture
 SDP: Marriage (CB 1501-1536)
