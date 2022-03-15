@@ -56,11 +56,11 @@ The Taxing Power and The Spending Power (CB 475-500)
 SPRING BREAK
 
 ## Class 15 - March 21, 2022
-Dormant Commerce Clause (CB 649-672)  
 Tenth Amendment (CB 500-521)
+NFIB v. Sebelius Part I (CB 525-556)
 
 ## Class 16 - March 23, 2022
-Bringing Things Together: NFIB v. Sebelius (CB 525-585)
+Bringing Things Together: NFIB v. Sebelius (CB 556-585)
 
 # Rights
 
