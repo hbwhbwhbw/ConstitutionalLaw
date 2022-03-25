@@ -53,7 +53,7 @@ Commerce Clause cont'd (CB 434-475)
 ## Class 14 - March 9, 2022
 The Taxing Power and The Spending Power (CB 475-500)
 
-SPRING BREAK
+# SPRING BREAK
 
 ## Class 15 - March 21, 2022
 Tenth Amendment (CB 500-521)
@@ -65,7 +65,7 @@ Bringing Things Together: NFIB v. Sebelius (CB 556-585)
 # Rights
 
 ## Class 17 - March 28, 2022 - Recorded Lecture
-Equal Protection Clause (CB 953-999)
+Equal Protection Clause (CB 953-999, 166-172)
 
 ## Class 18 - March 30, 2022
 Equal Protection Clause cont'd (CB 1177-1198, 1207-1237)
