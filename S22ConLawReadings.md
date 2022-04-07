@@ -78,7 +78,7 @@ Racial Subjugation (CB 1001-1019)
 Race-Conscious Remedies (CB 1136-1177)
 
 ## Class 21 - April 11, 2022
-SDP: Incorporation (CB 1267-1268, 1312-1314, 1331-1332)
+SDP: Incorporation (CB 1267-1268, 1312-1314, 1331-1332) (read as background)
 SDP: Economic Rights (CB 1332-1362)
 SDP: Family and Relationships (CB 1362-1378)
 
