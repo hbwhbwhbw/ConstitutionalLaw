@@ -78,15 +78,17 @@ Racial Subjugation (CB 1001-1019)
 Race-Conscious Remedies (CB 1136-1177)
 
 ## Class 21 - April 11, 2022
-Reconstruction Amendments (CB 608-639)
-SDP: Incorporation (CB 1267-1268, 1310-1332)
+SDP: Incorporation (CB 1267-1268, 1312-1314, 1331-1332)
+SDP: Economic Rights (CB 1332-1362)
 
 ## Class 22 - April 13, 2022
-SDP: Economic Rights (CB 1332-1362)
-SDP: Family (CB 1365-1382)
+SDP: Privacy, Dignity, and Autonomy (CB 1362-1378, 1389-1428)
 
 ## Class 23 - April 18, 2022
-SDP: Abortion (CB 1407-1476)
+SDP: Abortion (CB 1428-1460)
 
 ## Class 24 - Recorded Makeup Lecture
 SDP: Marriage (CB 1501-1536)
+
+## Review Session
+April 21, 2022, 11 a.m.
