@@ -39,25 +39,25 @@ Tenth Amendment (CB 500-524)
 Supplement p. 11
 
 ## Class 10 - September 14, 2023
-NFIB v. Sebelius Part I (CB 525-556)
-
-## Class 11 - September 19, 2023
-Bringing Things Together: NFIB v. Sebelius Part II (CB 556-585)
+NFIB v. Sebelius (CB 525-585)
 
 # Separation of Powers
 
-## Class 12 - September 21, 2023
+## Class 11 - September 19, 2023
 Presidential Power - a Conceptual Framework (CB 695-723)  
 INS v. Chadha (CB 881-897)
 
-## Class 13 - September 26, 2023
+## Class 12 - September 21, 2023
 Foreign Affairs (CB 812-843)
 
-## Class 14 - September 28, 2023
+## Class 13 - September 26, 2023
 War Powers (CB 843-880)
 
-## Class 15 - October 3, 2023
+## Class 14 - September 28, 2023
 Presidential Privilege and Immunity (CB 898-935)
+
+## Class 15 - October 3, 2023
+Introduction to rights (CB 54-60, 1305-1310, 61-64, 107-27, 973-982, 999-1012)
 
 ## Class 16 - October 5, 2023
 In-Class Midterm
@@ -67,30 +67,29 @@ In-Class Midterm
 # Rights
 
 ## Class 17 - October 17, 2023
-Introduction to rights (CB 54-60, 1305-1310, 61-64, 107-27, 973-982, 999-1012)
-
-## Class 18 - October 19, 2023
 Equal Protection Clause (CB 953-67, 982-999, 166-172)
 
-## Class 19 - October 24, 2023
+## Class 18 - October 19, 2023
 Equal Protection Clause cont'd (CB 1177-1198, 1207-1237)
 
-## Class 20 - October 26, 2023 (recorded lecture)
+## Class 19 - October 24, 2023
 Equal Protection Clause: Facially Neutral Laws (CB 1035-1086)
 
-## Class 21 - October 31, 2023
+## Class 20 - October 26, 2023 (recorded lecture)
 Racial Subjugation (CB 1001-1019)
 Supplement pp. 39-64
 
-## Class 22 - November 2, 2023
+## Class 21 - October 31, 2023
 SDP: Incorporation (CB 1267-1268, 1312-1314, 1331-1332) (read as background)
 SDP: Economic Rights (CB 1332-1362)
+
+## Class 22 - November 2, 2023
 SDP: Family and Relationships (CB 1362-1378)
+SDP: Abortion (1389-1407)
 
 ## No Class November 7 - Reading Day
 
 ## Class 23 - November 9, 2023
-SDP: Abortion (1389-1407)
 Supplement pp. 75-140
 
 ## Class 24 - November 14, 2023
