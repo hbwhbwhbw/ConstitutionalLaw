@@ -56,28 +56,31 @@ War Powers (CB 843-880)
 ## Class 14 - September 28, 2023
 Presidential Privilege and Immunity (CB 898-935)
 
-## Class 15 - October 3, 2023
-Introduction to rights (CB 54-60, 1305-1310, 61-64, 107-27, 973-982, 999-1012)
+# Rights
+
+## Class 15 - October 3, 2023  
+Barron v. City of Baltimore (CB 61-64)
+Scott v. Sandford (CB 107-27)
+Adoption of the Reconstruction Amendments (CB 166-181)  
+Strauder v. West Virginia and Plessy v. Ferguson (CB 968-982)  
 
 ## Class 16 - October 5, 2023
 In-Class Midterm
 
 # FALL BREAK - No class October 9-13
 
-# Rights
-
-## Class 17 - October 17, 2023
-Equal Protection Clause (CB 953-67, 982-999, 166-172)
+## Class 17 - October 17, 2023  
+Equal Protection Clause: Rational Basis Review (CB 953-67)  
+Equal Protection Clause: Strict Scrutiny (CB 982-1012)
 
 ## Class 18 - October 19, 2023
-Equal Protection Clause cont'd (CB 1177-1198, 1207-1237)
+Equal Protection Clause: Facially Neutral Laws (CB 1035-1057, 1073-1080)
 
 ## Class 19 - October 24, 2023
-Equal Protection Clause: Facially Neutral Laws (CB 1035-1086)
+Equal Protection: Race-Conscious Remedies (CB 1110-1136, Supplement pp. 39-64)
 
 ## Class 20 - October 26, 2023 (recorded lecture)
-Racial Subjugation (CB 1001-1019)
-Supplement pp. 39-64
+Equal Protection: Heightened Scrutiny (CB 1183-1198, 1207-1237)
 
 ## Class 21 - October 31, 2023
 SDP: Incorporation (CB 1267-1268, 1312-1314, 1331-1332) (read as background)
@@ -85,12 +88,12 @@ SDP: Economic Rights (CB 1332-1362)
 
 ## Class 22 - November 2, 2023
 SDP: Family and Relationships (CB 1362-1378)
-SDP: Abortion (1389-1407)
+SDP: Bodily Integrity and Autonomy (1389-1407)
 
 ## No Class November 7 - Reading Day
 
 ## Class 23 - November 9, 2023
-Supplement pp. 75-140
+SDP: Abortion (Supplement pp. 75-140)
 
 ## Class 24 - November 14, 2023
-SDP: Marriage (CB 1501-1536)
+SDP: Gay Rights and Marriage (CB 1501-1536)
