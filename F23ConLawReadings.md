@@ -59,8 +59,8 @@ Presidential Privilege and Immunity (CB 898-935)
 # Rights
 
 ## Class 15 - October 3, 2023  
-Barron v. City of Baltimore (CB 61-64)
-Scott v. Sandford (CB 107-27)
+Barron v. City of Baltimore (CB 61-64)  
+Scott v. Sandford (CB 107-27)  
 Adoption of the Reconstruction Amendments (CB 166-181)  
 Strauder v. West Virginia and Plessy v. Ferguson (CB 968-982)  
 
@@ -83,11 +83,11 @@ Equal Protection: Race-Conscious Remedies (CB 1110-1136, Supplement pp. 39-64)
 Equal Protection: Heightened Scrutiny (CB 1183-1198, 1207-1237)
 
 ## Class 21 - October 31, 2023
-SDP: Incorporation (CB 1267-1268, 1312-1314, 1331-1332) (read as background)
+SDP: Incorporation (CB 1267-1268, 1312-1314, 1331-1332) (read as background)  
 SDP: Economic Rights (CB 1332-1362)
 
 ## Class 22 - November 2, 2023
-SDP: Family and Relationships (CB 1362-1378)
+SDP: Family and Relationships (CB 1362-1378)  
 SDP: Bodily Integrity and Autonomy (1389-1407)
 
 ## No Class November 7 - Reading Day
